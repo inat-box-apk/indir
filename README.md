@@ -2,8 +2,7 @@
 
 # [Inat Box Indir](https://inatboxpro.com.tr)
 
-
-![Inat BOX](https://inatboxpro.com.tr/storage/2024/09/inat-box.webp)
+[![Inat BOX](https://r.resimlink.com/jiMlRc.jpg)](https://inatboxpro.com.tr)
 
 # Inat BOX APK Indir Son Sorum 2025 🚀
 
