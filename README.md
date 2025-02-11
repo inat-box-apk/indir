@@ -3,7 +3,7 @@
 # [Inat Box Indir](https://inatboxpro.com.tr)
 
 
-[![Inat BOX](https://inatboxpro.com.tr/storage/2024/09/inat-box.webp)](https://inatboxpro.com.tr)
+![Inat BOX](https://inatboxpro.com.tr/storage/2024/09/inat-box.webp)
 
 # Inat BOX APK Indir Son Sorum 2025 🚀
 
